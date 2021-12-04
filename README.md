@@ -1,0 +1,1 @@
+# sistem-pakar-diagnosa-dini-hama-holtikultura
